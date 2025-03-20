@@ -35,6 +35,7 @@ Os usuários podem solicitar a exclusão de seus dados a qualquer momento, entra
 Esta política pode ser atualizada periodicamente. Recomendamos que os usuários revisem esta página regularmente.
 
 ## 📞 Contato
-Se tiver dúvidas ou desejar solicitar a exclusão dos seus dados, entre em contato pelo e-mail: [suporte@seusite.com](mailto:suporte@seusite.com) ou [thiago.s.klebis@gmail.com](mailto:thiago.s.klebis@gmail.com).
+Se tiver dúvidas ou desejar solicitar a exclusão dos seus dados, entre em contato pelo e-mail: [Whatsapp](mailto:14997675425) ou [thiago.s.klebis@gmail.com](mailto:thiago.s.klebis@gmail.com).
 
 📌 **Última atualização:** 10 de outubro de 2023.
+
